@@ -1,2 +1,2 @@
 ### 
-FanQi Meng from BoHai University
+I'm Fanqi Meng from BoHai University. Computer Science!
